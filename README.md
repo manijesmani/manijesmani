@@ -1,5 +1,8 @@
 ## Hi there 👋
 
+## My plan is to work in a team where I can strengthen my IT knowledge, because I’ve learned that knowledge is power.
+
+## I’m passionate about teamwork and creating
 <!--
 **manijesmani/manijesmani** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
